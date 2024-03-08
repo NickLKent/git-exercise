@@ -1,4 +1,4 @@
-# Chapter Three
+# Shockwaves
 
 The fallout from the scandal was far-reaching. The school's reputation took a hit, with prospective students and their families questioning the integrity of the institution. Alumni were outraged, feeling that the values of honesty and integrity that they had been taught at Macalester had been betrayed. The faculty and staff were also affected, feeling the weight of the scandal on their shoulders as they worked to rebuild trust with their students.
 

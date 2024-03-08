@@ -1,6 +1,6 @@
 # The Macalester College Scandal
 
-- [Chapter 1](chapter1.md)
-- [Chapter 2](chapter2.md)
-- [Chapter 3](chapter3.md)
-- [Chapter 4](chapter4.md)
+- [The Scandal Begins](chapter1.md)
+- [The Investigation](chapter2.md)
+- [Shockwaves](chapter3.md)
+- [Macalester College Restored](chapter4.md)

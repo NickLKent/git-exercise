@@ -1,4 +1,4 @@
-# Chapter Four
+# Macalester College Restored
 
 Despite the dark shadow cast by the scandal, there were silver linings to be found. The Macalester community banded together in the face of adversity, supporting one another and working towards a common goal of rebuilding trust and integrity. Students learned valuable lessons about the importance of honesty and hard work, and the faculty and staff were reminded of the critical role they played in shaping the academic experience of their students.
 

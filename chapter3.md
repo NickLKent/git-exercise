@@ -1,5 +1,5 @@
-# Chapter Two
+# Shockwaves
 
-The administration was quick to respond, launching a full-scale investigation into the matter. Professors were asked to review all of their students' assignments and exams, looking for any signs of cheating or plagiarism. The process was time-consuming and laborious, but necessary to restore the integrity of the school's academic programs.
+The fallout from the scandal was far-reaching. The school's reputation took a hit, with prospective students and their families questioning the integrity of the ining that the values of honesty and integrity that they had been taught at Gustavus had been betrayed. 
 
-As the investigation continued, more students were implicated in the scandal. It was discovered that a small group of students had been operating a cheating ring, selling answers to exams and papers to their classmates for a hefty price. The ringleaders were quickly expelled from the school, with the others facing disciplinary action ranging from probation to suspension.
+In the aftermath of the scandal, the administration worked tirelessly to implement new policies and procedures to prevent future cheating incidents. They hired additional staff to monitor exams and assignments, implemented stricter penalties for academic misconduct, and provided resources for students who needed help with their coursework. It was a long and difficult road to recovery, but the school was determined to uphold its reputation as a place of academic excellence and integrity.
